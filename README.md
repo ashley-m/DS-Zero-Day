@@ -17,3 +17,5 @@ Share the load
 Don't over aggro
 
 Protect ya neck
+
+Don't steal - embellish

@@ -19,3 +19,5 @@ Don't over aggro
 Protect ya neck
 
 Don't steal - embellish
+
+All 41 and 14 all
